@@ -20,5 +20,5 @@ We may update this policy in the future if features change. All changes will be 
 ## 6. Contact
 If you have any questions or concerns about this Privacy Policy, please contact us at:
 
-📧 [email@example.com]  
+📧 [skinmatchforyou@gmail.com]  
 📅 Last updated: June 2025
